@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎯 Seeking opportunities as:<br>Multimedia Virtual Assistant (MVA)<br>💼 Current role:<br>Data Entry Virtual Assistant<br>🤝 Open to collaborate on:<br>Website layouts, social media creatives, and digital marketing assets.<br>🌱 Currently developing skills in:<br>Canva design, responsive web layouts (HTML & CSS), and AI-assisted workflows.<br>💬 Ask me about:<br>Data entry, multimedia VA tasks, Canva, and basic web design.<br>⚡ Fun fact:<br>I blend creativity and structure to deliver clean, reliable digital work.
+🎯 Seeking opportunities as:<br>Multimedia Virtual Assistant (MVA)<br>💼 Current role:<br>Data Entry<br>🤝 Open to collaborate on:<br>Website layouts, social media creatives, and digital marketing assets.<br>🌱 Currently developing skills in:<br>Canva design, responsive web layouts (HTML & CSS), and AI-assisted workflows.<br>💬 Ask me about:<br>Data entry, multimedia VA tasks, Canva, and basic web design.<br>⚡ Fun fact:<br>I blend creativity and structure to deliver clean, reliable digital work.
 
 
 ## 🌐 Socials:
